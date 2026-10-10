@@ -1,4 +1,5 @@
 # supreme-octo-tribble
 一些关于经济的小故事
-[Uploading 经济.docx…]()
+[经济.docx](https://github.com/user-attachments/files/33279076/default.docx)
+
 

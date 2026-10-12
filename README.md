@@ -5,5 +5,13 @@
 
 
 还有前段时间很火的（高性价比人生指南） 我更喜欢称呼他为《齐民要术》
-https://cdyforever.github.io/how-to-live-better/ 
+https://cdyforever.github.io/how-to-live-better/ 手机可在线观看 这是个网站的网址
 网住是从cdyforever 和 github-actions[bot] 哪里挖来的
+
+
+
+
+个人对成长的看法[成长.docx](https://github.com/user-attachments/files/33337773/default.docx)
+别逃避 别等待 去克服它 去主动开创自己想要的结果 加油
+
+
